@@ -1,4 +1,4 @@
-<p align="center"> <img width="722" height="550" alt="comparing posts, subscribing" src="https://github.com/user-attachments/assets/eab83e37-05f4-42f6-b492-7f8642c1b310" />
+<p align="center"> <img width="722" height="540" alt="comparing posts, subscribing" src="https://github.com/user-attachments/assets/eab83e37-05f4-42f6-b492-7f8642c1b310" />
 <p align="center">
   <a href="https://cloverlxcky.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
