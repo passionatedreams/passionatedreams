@@ -3,7 +3,7 @@
 <p align="center">
   <a href="https://cloverlxcky.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
-  <a href="https://pinterest.com/lxckyghlett">pinterest</a>
+  <a href="www.pinterest.com/cryingcoinself">pinterest</a>
 ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
   <a href="https://en.pronouns.page/@fireoinylxck">prns page</a>
 </p>
