@@ -1,5 +1,7 @@
 <p align="center"> <img width="722" height="530" alt="comparing posts, subscribing" src="https://github.com/user-attachments/assets/eab83e37-05f4-42f6-b492-7f8642c1b310" />
-<p align="center"> $\color{"c08457"}\text{𝙗𝙖𝙨𝙞𝙡 #1 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣}$</p>
+<p align="center"> <p style="color: #c08457; font-weight: bold; font-style: italic;">
+  𝙗𝙖𝙨𝙞𝙡 #1 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣
+</p>
 <hr>
 <p align="center">
   <a href="https://cloverlxcky.atabook.org">ata</a>
