@@ -1,4 +1,4 @@
-<p align="center"> <img width="636" height="463" alt="Sean and Micheal" src="https://github.com/user-attachments/assets/f1cbbbbb-8b7f-493b-bbd7-7789df6b3a04" />
+<p align="center"> <img width="736" height="433" alt="Sean and Micheal" src="https://github.com/user-attachments/assets/f1cbbbbb-8b7f-493b-bbd7-7789df6b3a04" />
 <p align="center"> $\color{#c08457}\text{⋮ ⌣⌣ . ⠀ ⠀ ⠀𝙗𝙖𝙨𝙞𝙡 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣 . ⠀ ⠀⌞ 𝖼𝗑𝗁 𝖿𝗋𝖾𝖾𝗅𝗒 , 𝗂𝖽𝖼 . ⌝}$</p>
 <hr>
 <p align="center">
