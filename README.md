@@ -1,9 +1,9 @@
 <p align="center"> <img width="736" height="414" alt="watching netflix and tiki takis" src="https://github.com/user-attachments/assets/8975ec4b-f0a3-44f8-9986-50e85999f42d" />
 <p align="center"> 
   $\color{#c08457}\text{⋮ ⌣⌣ . ⠀ ⠀ ⠀𝙗𝙖𝙨𝙞𝙡 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣 . ⠀ ⠀ ⠀ ⠀}$
-  $\color{#f4e983}\text{⌞ wake me up}$
-  $\color{#ff991c}\text{when fireoiny}$
-  $\color{#c76e00}\text{is canon .⌝}$
+  $\color{#f4e983}\text{⌞ I ABSOLUTELY}$
+  $\color{#ff991c}\text{LOVEEEEEEEE}$
+  $\color{#c76e00}\text{THESE GAY FREAKS OMGGGGGGGGGG .⌝}$
 </p>
 <hr>
 <p align="center">
