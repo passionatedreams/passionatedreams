@@ -2,8 +2,8 @@
 <p align="center"> 
   $\color{#c08457}\text{⋮ ⌣⌣ . ⠀ ⠀ ⠀𝙗𝙖𝙨𝙞𝙡 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣 . ⠀ ⠀ ⠀ ⠀}$
   $\color{#f4e983}\text{⌞ I ABSOLUTELY}$
-  $\color{#ff991c}\text{LOVE}$
-  $\color{#c76e00}\text{THESE GAY FREAKS OMGG .⌝}$
+  $\color{#ff991c}\text{LOVE THESE GAY}$
+  $\color{#c76e00}\text{FREAKS OMGG .⌝}$
 </p>
 <hr>
 <p align="center">
