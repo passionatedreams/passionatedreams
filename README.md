@@ -3,7 +3,7 @@
   $\color{#c08457}\text{⋮ ⌣⌣ . ⠀ ⠀ ⠀𝙗𝙖𝙨𝙞𝙡 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣 . ⠀ ⠀ ⠀ ⠀}$
   $\color{#f4e983}\text{⌞ I ABSOLUTELY}$
   $\color{#ff991c}\text{LOVE THESE GAY}$
-  $\color{#c76e00}\text{FREAKS OMGG .⌝}$
+  $\color{#c76e00}\text{FREAKS OMGG JUST KISS ALREADY⌝}$
 </p>
 <hr>
 <p align="center">
