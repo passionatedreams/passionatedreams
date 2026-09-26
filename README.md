@@ -1,10 +1,5 @@
 <p align="center"> <img width="735" height="425" alt="zgzin" src="https://github.com/user-attachments/assets/4594c611-3766-4675-88db-28fc8850fbaf" />
-<p align="center"> 
-  $\color{#c08457}\text{⋮ ⌣⌣ . ⠀ ⠀ ⠀𝙗𝙖𝙨𝙞𝙡 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣 . ⠀ ⠀ ⠀ ⠀}$
-  $\color{#f4e983}\text{⌞ I ABSOLUTELY}$
-  $\color{#ff991c}\text{LOVE THESE GAY}$
-  $\color{#c76e00}\text{FREAKS OMGG JUST KISS ALREADY⌝}$
-</p>
+<p align="center"> $\color{#fdd8b2}\text{⋮ ⌣⌣ . ⠀ ⠀ ⠀𝙗𝙖𝙨𝙞𝙡 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣 . ⠀ ⠀ ⠀ ⌞ I ABSOLUTELY LOVE THESE GAY FREAKS OMGG JUST KISS ALREADY⌝}$</p>
 <hr>
 <p align="center">
   <a href="https://cloverlxcky.atabook.org">ata</a>
