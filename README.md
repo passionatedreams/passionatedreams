@@ -1,4 +1,4 @@
-<p align="center"> <img width="736" height="414" alt="watching netflix and tiki takis" src="https://github.com/user-attachments/assets/8975ec4b-f0a3-44f8-9986-50e85999f42d" />
+<p align="center"> <img width="735" height="425" alt="zgzin" src="https://github.com/user-attachments/assets/4594c611-3766-4675-88db-28fc8850fbaf" />
 <p align="center"> 
   $\color{#c08457}\text{⋮ ⌣⌣ . ⠀ ⠀ ⠀𝙗𝙖𝙨𝙞𝙡 𝙙𝙚𝙛𝙚𝙣𝙙𝙚𝙧 𝙖𝙣𝙙 𝙠𝙞𝙣 . ⠀ ⠀ ⠀ ⠀}$
   $\color{#f4e983}\text{⌞ I ABSOLUTELY}$
