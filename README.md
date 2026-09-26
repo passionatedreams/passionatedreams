@@ -1,4 +1,8 @@
-<p align="center"> <img width="403" height="302" alt="dumb_1_optimized_250" src="https://github.com/user-attachments/assets/0fc2dd84-8922-4f05-a6c5-a3970f25afac" />
+<p align="center"> 
+  <a href="#">
+  <img width="2048" height="1536" alt="dumb" src="https://github.com/user-attachments/assets/03cad332-165c-49a5-ad21-575a6726a187" />
+</a>
+</p>
 <p align="center">
   <a href="https://cloverlxcky.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
